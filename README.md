@@ -34,7 +34,7 @@ gjjgjgnjj jffbbfj
 3. fjfj
 
 
-![photka](img/1_28-3-326-629_20031106162132.jpg)
+![photka](1_28-3-326-629_20031106162132.jpg)
 
 ![fhhffh](https://sun9-4.userapi.com/c626728/v626728295/27819/yQxkNP9I6DA.jpg)
 
